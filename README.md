@@ -1,0 +1,1 @@
+# Sepataka.github.io
